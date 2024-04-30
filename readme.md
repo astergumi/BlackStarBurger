@@ -1,1 +1,1 @@
-https://astergumi.github.io/BlackStarBurger/
+https://osipovtwelve.github.io/BlackStarBurger/
